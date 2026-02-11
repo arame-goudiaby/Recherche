@@ -17,3 +17,6 @@ Le voyage a été préparé durant le séjour du Professeur Emmanuel Ngué Um à
 
 ## Perspectives
 
+## Bibliographie
+Une liste bibliographique sera bientôt disponiblbe ici.
+
